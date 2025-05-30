@@ -4,6 +4,6 @@
 
  ![](https://www.pngkey.com/png/full/197-1972479_attack-on-titan-junior-high-aot-junior-high.png)
  
- always int and c+h  ★
+ always int and c+h  .  BMF BMF BMF
 
 
