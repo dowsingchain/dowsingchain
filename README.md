@@ -2,7 +2,7 @@
 
 [strawpage](https://boooyah.straw.page/)
 
- ![](https://www.pngkey.com/png/full/197-1972479_attack-on-titan-junior-high-aot-junior-high.png)
+ ![](https://sweezy-cursors.com/wp-content/uploads/cursor/alien-stage-till-guitar-animated/alien-stage-till-guitar-animated-custom-cursor.gif)
  
  always int and c+h  .  BMF BMF BMF
 
