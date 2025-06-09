@@ -1,6 +1,6 @@
 
 
-[strawpage](https://boooyah.straw.page/)
+[strawpage](https://boooyah.straw.page/) • [rentry](https://rentry.co/jazzzzybum)
 
  ![](https://static.wikia.nocookie.net/chiikawa/images/6/63/FightOnRakko.png/revision/latest/thumbnail/width/360/height/360?cb=20240709071629)
 
